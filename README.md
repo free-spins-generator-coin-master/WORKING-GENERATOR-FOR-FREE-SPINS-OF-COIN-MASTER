@@ -2,9 +2,10 @@
 
 **24 second*Tap into Coin Master's March 2024 Free Spins, Coins, and Links! Simply hit "Collect Now" to reveal a pop-up menu offering instant access to your rewards within Coin Master.
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://jimaddadel.github.io/Coin)
+
  
 Coin Master is a popular mobile game that combines elements of strategy, luck, and social interaction to create an engaging gaming experience. One of the key features that make Coin Master so addictive is its free spins mechanic. Free spins are essential for spinning the slot machine within the game, which grants various rewards crucial for advancing through levels. These rewards include coins used for constructing buildings and upgrading village features, as well as attacks and raids that allow players to attack and loot other players' villages.
 
